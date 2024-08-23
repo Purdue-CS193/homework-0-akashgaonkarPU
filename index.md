@@ -4,6 +4,7 @@ Favorite things about CS193:
 - Helpful Teachers
 - Very responsive on Ed discussions
 - Nice classroom environment
+- get to meet cool people
 
 
 
